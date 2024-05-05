@@ -7,7 +7,7 @@ Sound master the song "Friends & Enemies."
 The Hare Krishna mantra, also known as the Maha Mantra, is a 16-word chant that has been used for centuries to bring about peace of mind and connect with the divine.
 
 **Personal Request**
-This is my first time requesting help for a song. Please let me know if you need additional information to master the song. Please enhance the song as professionally as possible.
+Please enhance the song as professionally as possible.
 
 **Project Layout:**
 
